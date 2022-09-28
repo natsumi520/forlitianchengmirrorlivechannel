@@ -6,5 +6,9 @@
 - [For李天成镜像直播频道Hosted By 扛精（火毅）](https://player.live.huoyinetwork.cn/?id=forltcmirror-gangjing&node=data)
 - [For李天成镜像直播频道Hosted By Fedora枫叶（敬请期待）](/nohostedby.html)
 - [For李天成镜像直播频道主频（本站在线播放器）](/player=forltcmirrorlivechannel-bilibili.html)
-- [For李天成镜像直播频道b站官方账号](https://space.bilibili.com/528573889)
-# 特别说明：For李天成镜像直播频道火毅直播平台由火毅网络团队提供支持，在此感谢火毅网络团队
+- 敬请期待
+# 特别说明
+For李天成镜像直播频道火毅直播平台由火毅网络团队提供支持，在此感谢火毅网络团队
+# 您可以在此找到For李天成镜像直播频道官方群和官方号
+官方qq群：737693332
+b站官方账号：@For李天成镜像直播频道
